@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Pietro Rodrigues
 - 👀 I’m interested in Learn programming
 - 🌱 I’m currently learning Algorithm logic
-- 💞️ I’m looking to collaborate on Nothing currently...
+- 💞️ I’m looking to collaborate Nada currently...
 - 📫 How to reach me rodrigues.pietro2015@gmail.com
 - 😄 Pronouns: ele/dele
 - ⚡ Fun fact: I hate broccoli
